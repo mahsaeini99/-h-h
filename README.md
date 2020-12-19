@@ -1,1 +1,1 @@
-# [Javascriptcertificate](-h-h)
+# [Javascriptcertificate](JavaScript_certificate_pdfjava.pdf)
